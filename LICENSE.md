@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PanelMasonProxy.github.io/volleyball-legends-nj37/ ) |
  |---------------------|----------------------:|
 
 
